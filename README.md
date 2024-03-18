@@ -1,0 +1,1 @@
+# study_nodes_pictures
